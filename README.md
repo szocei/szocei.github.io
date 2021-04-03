@@ -1,1 +1,0 @@
-# szocei.github.io
